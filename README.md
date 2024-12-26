@@ -1,0 +1,1 @@
+Food Delight is a leading brand offering delicious, quick, and healthy meals. Here, you can explore a diverse menu ranging from traditional to modern dishes that cater to every taste. Our website is not only visually appealing but also optimized for browsing your favorite meals, accessing detailed information, and placing orders conveniently.
